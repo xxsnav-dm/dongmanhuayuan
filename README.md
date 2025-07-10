@@ -4,7 +4,7 @@
 动漫花园同步站是一个为动漫爱好者提供资源同步和镜像服务的平台，旨在通过镜像站点提供与“动漫花园”一致的资源内容。它聚合了大量知名动漫字幕组的作品资源，例如GM-Team、樱都字幕组、喵萌奶茶屋等，用户可以通过搜索功能快速找到感兴趣的动画或漫画资源。此外，该平台还设有社区功能，用户可以在此交流心得、分享资源和讨论动漫相关话题。
 
 <p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/15971.html" target="_blank" ><strong>动漫花园同步站最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/favorites/dongmanziyuan" target="_blank" ><strong>动漫资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://dongmandaohang.sodanav.com" target="_blank" ><strong>动漫网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
